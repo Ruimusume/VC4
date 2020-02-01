@@ -1,6 +1,6 @@
 # Switch Valkyria Chronicles 4 Ver.1.0.1 SXOS Cheats
 by 露易娘 Ruimusume</br>
-日站博客：http://ruimusume.blog.jp/</br>
+日站博客：http://ruisan.blog.jp/</br>
 微博：https://weibo.com/ruisan</br>
 
 Switch 戦場のヴァルキュリア4 チートコード</br>
